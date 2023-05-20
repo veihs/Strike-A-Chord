@@ -1,2 +1,0 @@
-# Strike A Chord
- 
